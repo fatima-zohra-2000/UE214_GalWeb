@@ -2,4 +2,4 @@
 
 Aperçu :
 
-![image](https://github.com/fatima-zohra-2000/UE314_GalWeb/assets/79930498/d78555d2-1d23-45f2-b301-4f38174a7b48)
+![image](https://github.com/fatima-zohra-2000/UE314_GalWeb/assets/79930498/405ff06b-591c-4e83-ba4f-897bec074f0f)
